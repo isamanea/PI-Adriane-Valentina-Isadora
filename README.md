@@ -1,5 +1,5 @@
 # PI-Adriane-Valentina-Isadora
-# Empowerher - Adriane Carlotto, Valentina Machada e Isadora Manéa
+# Empowerher - Adriane Carlotto, Valentina Machado e Isadora Manéa
 
 Ajudando mulheres em situação de vulnerabilidade.
 
